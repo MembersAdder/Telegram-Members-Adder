@@ -10,7 +10,7 @@ Buy Now Telegram Members Adder Advanced Software
 Price of Software -- 3000 inr or (41$) Lifetime License
 Discount available (Terms and conditions apply)
 
-***CONTACT ME ON TELEGRAM  https://www.telegram.me/ProMembersAdder ***
+***CONTACT ME ON TELEGRAM  https://www.telegram.me/ProMembersAdder***
 
 Files is in this software Folder: What is in the Advance Version bundle?
 
