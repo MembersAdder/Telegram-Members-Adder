@@ -7,7 +7,7 @@ You are talking to right person, 110% Legit and trusted with more than 1000 happ
 
 Buy Now Telegram Members Adder Advanced Software
 
-Price of Software -- 3000 inr or (41$) Lifetime License
+Price of Software - 3000 inr or (41$) Lifetime License
 Discount available (Terms and conditions apply)
 
 ***CONTACT ME ON TELEGRAM  https://www.telegram.me/ProMembersAdder***
