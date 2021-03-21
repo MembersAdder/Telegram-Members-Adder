@@ -28,7 +28,7 @@ Files is in this software Folder: What is in the Advance Version bundle?
 
 **Sessions** – Contains The Session Files Of The Logged In Numbers, So No Need To Login Every Time You Run The Script.
 
-Features of Software :👉Automatic account switching whenever limit of one account is reached 👉 No Daily Limit/ No Time Limit 👉 Only real and active members will export 👉 No need to change API id & Hash (Only two Api and Hash Required) 👉 Auto join group 👉 Can Add 100+ Numbers 👉 Export Members from Groups 👉 Add Members From Any Target Group 👉 No Need to login Next Time 👉 Adds through Id No. So no need of Username 👉 Login through 2 factor password . No need to lose account anymore
+Features of Software :👉Automatic account switching whenever limit of one account is reached 👉 No Daily Limit/ No Time Limit 👉 Only real and active members will export 👉 No need to change API id & Hash (Only two Api and Hash Required) 👉 Auto join group 👉 Can Add 100+ Numbers 👉 Export Members from Groups 👉 Add Members From Any Target Group 👉 No Need to login Next Time 👉 Adds through Id No. So no need of Username 👉 Login through 2 factor password . No need to loose account anymore
 
 Teaching Method - Live Teaching Via Anydesk or Teamviewer
 I will provide full instructions on -
