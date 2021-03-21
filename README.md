@@ -34,6 +34,7 @@ Teaching Method - Live Teaching Via Anydesk or Teamviewer
 I will provide full instructions on -
 1. How to create free unlimited telegram accounts daily.
 2. How to earn Rs 500-2000 daily on telegram.
+3. Trick to add members to telegram channels (without using script)
 
 --------------------------------------------------------------------------------------------------------------------
 
