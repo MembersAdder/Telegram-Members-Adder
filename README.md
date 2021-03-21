@@ -9,7 +9,7 @@ Buy Now Telegram Members Adder Advanced Software
 Price of Software -- 3000 inr or (41$) Lifetime License
 Discount available (Terms and conditions apply)
 
-**_CONTACT ME ON TELEGRAM  https://www.telegram.me/ProMembersAdder _**
+***CONTACT ME ON TELEGRAM  https://www.telegram.me/ProMembersAdder ***
 
 Files is in this software Folder: What is in the Advance Version bundle?
 
@@ -38,17 +38,16 @@ I will provide full instructions on -
 
 If you do not have time to add members then we offer member adding services also to our customers.
 
- **_✅Member Adding Service _**
+ ***✅Member Adding Service ***
 
 I add real and targeted members to your groups at very reasonable price.
 
-
-I also add Real and targeted members to your group.
 Expert Services -
 1. Crypto Trading members
 2. Indian Stock Trading Members
 3. People related to boards who really get take part in your gifting community(We add most active members to prevent inactive boards)
 4. People related to investments
+5. People related to OTT services and subscription related platforms.
 
 ==================================================
 
@@ -56,4 +55,4 @@ Expert Services -
 
 MODE OF PAYMENT: BTC, USDT , Skrill ,Paytm , UPI and almost all other methods also accepted ⁉️PAYMENT FIRST! too many scammers out there. 🚫DON'T SEND ANY PAYMENT unless you verify that I'm legit! CHECK ALL YOU WANT .
 
-**_CONTACT ME ON TELEGRAM @ProMembersAdder _**
+***CONTACT ME ON TELEGRAM @ProMembersAdder ***
